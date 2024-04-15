@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **hiShubhamSaurav@gmail.com**
 
-- ⚡ Fun fact **A funny mix of realism and nihilism**
+- ⚡Outlook: **A funny mix of realism and nihilism**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
